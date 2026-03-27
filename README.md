@@ -8,4 +8,4 @@
 
 > Note: This account is used for part-time jobs and company-related work. My main account exists separately.
 
-Feel free to reach out via [Website](https://misakisota.com/contact) or email me at `contact@misakisota.com`
+Feel free to reach out via [Website](https://sotamisaki.com/contact) or email me at `contact@sotamisaki.com`
